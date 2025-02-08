@@ -64,7 +64,7 @@ Click for details 📜
 ##### Expected graduation: Mar. 2024
 - Degree: Bachelor of Engineering (B.Eng.) in Computer Science
 - Specialization: IT Systems' Engineering
-- 2018 - Present
+- 2018 - 2024
 
 #### #️⃣ Vocational Technical High School for Electronic and Information Technology
 ###### Zespół Szkół Elektronicznych i Informatycznych w Sosnowcu
